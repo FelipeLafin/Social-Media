@@ -1,7 +1,7 @@
 # Social-Media
 ### PERFIS ###
 #### Instagram ####
-![alt text](image-1.png)
+![alt text](image-2.png)
  - Para ver meu perfil
 **[clique aqui](https://www.instagram.com/lafin_f41/)**
 
