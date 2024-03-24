@@ -6,7 +6,7 @@
 **[clique aqui](https://www.instagram.com/lafin_f41/)**
 
 #### Youtube ####
-![alt text](Screenshot_1.png)
+![alt text](Screenshot_1-removebg-preview.png)
  - Para ver meu canal
 **[clique aqui](https://www.youtube.com/channel/UCT2mB149-JUjl6dhdnF_i5A)**
 
