@@ -15,3 +15,4 @@
   *Para ver meu perfil no Linkedin*
  **[clique aqui](https://www.linkedin.com/in/felipe-lafin-haushahn-3785a2237/)**
 
+![alt text](Screenshot_2.png)
