@@ -11,7 +11,7 @@
 **[clique aqui](https://www.youtube.com/channel/UCT2mB149-JUjl6dhdnF_i5A)**
 
 #### Linkedin ####
-![alt text](linkedin-2.png)
+![alt text](linkedin-3.png)
  - Para ver meu perfil no Linkedin
  **[clique aqui](https://www.linkedin.com/in/felipe-lafin-haushahn-3785a2237/)**
 
